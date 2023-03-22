@@ -1,5 +1,6 @@
 1. https://phurcase-japan78.blogspot.com/
 2. https://youtubejapan0.blogspot.com/
+3. https://phurcase-japan78.blogspot.com/2023/03/bad-apple-played-on-classicalpipo9.html
 
 FlagsCounter:
 
